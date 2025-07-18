@@ -1,2 +1,2 @@
-Hi! :thumbsup: :crab:
+Hi!
 
